@@ -1,7 +1,9 @@
 ## light wip rmk rn....come back later
   
  <table border="0" cellpadding="0" cellspacing="0">
-  <tr>
+  <tr> <!-- LEFT SIDE: MAIN CHARACTER ART -->
+    <p align="center">
+      <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/banner%20upright.png?raw=true" width="100%" alt="Main Character">
     <!-- LEFT SIDE: MAIN CHARACTER ART -->
     <td valign="top" width="45%">
       <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/da%20big%20rodrick.png?raw=true" width="100%" alt="Main Character">
@@ -21,6 +23,9 @@
       <p align="left">
       
   <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/that%20is%20NOT%20rodrick%20but%20shh.png?raw=true" width="100%">    </td>  </tr> </table>
+ <!-- LEFT SIDE: MAIN CHARACTER ART -->
+   <p align="center">
+      <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/banner%20upsidedeown.png?raw=true" width="100%" alt="Main Character">
   </td>
   </tr>
 </table> 
