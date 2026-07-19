@@ -1,4 +1,4 @@
-## light wip rmk rn....come back later
+## The rodrick luvr :3
   
  <table border="0" cellpadding="0" cellspacing="0">
   <tr> <!-- LEFT SIDE: MAIN CHARACTER ART -->
