@@ -6,7 +6,7 @@
       <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/banner%20upright.png?raw=true" width="100%" alt="Main Character">
     <!-- LEFT SIDE: MAIN CHARACTER ART -->
     <td valign="top" width="45%">
-      <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/da%20big%20rodrick.png?raw=true" width="100%" alt="Main Character">
+      <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/da%20big%20rodrick.png?raw=true" width="100%" alt="Main Character"> <img src= "https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/yippie%20rodrick.png?raw=true" width="100%"><br>
     </td>  <!-- RIGHT SIDE: STATS, TEXT, AND DESIGNED GRAPHICS -->
     <td valign="top" width="55%" style="padding-left: 20px;">  <!-- Custom Header Graphic (Top Ribbon Box) -->
       <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/heart%20checked%20rodrick.webp?raw=true="100%"><br><br> <!-- Text Bio Area -->
