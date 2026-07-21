@@ -1,9 +1,6 @@
 ## The rodrick luvr :3
-  
  <table border="0" cellpadding="0" cellspacing="0">
   <tr> <!-- LEFT SIDE: MAIN CHARACTER ART -->
-    <p align="center">
-      <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/banner%20upright.png?raw=true" width="100%" alt="Main Character">
     <!-- LEFT SIDE: MAIN CHARACTER ART -->
     <td valign="top" width="45%">
       <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/da%20big%20rodrick.png?raw=true" width="100%" alt="Main Character"> <img src= "https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/yippie%20rodrick.png?raw=true" width="100%"><br>
