@@ -29,7 +29,9 @@
   </td>
   </tr>
 </table> 
-(yume strawpage coming eventually,,,its a wip oke?)
+ <a href="https://rodricksheart.straw.page" target="_blank">
+  <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/chibi%20art%20fur%20github.png?raw=true" alt="mi strawpage" width="48%">
+  PLEASE SIGN MY YUME STRAWPAGE HERE !!!
 <!--
 <p align"center">
 <img src="https://demolab.com/." alt="Typing Animation" />
