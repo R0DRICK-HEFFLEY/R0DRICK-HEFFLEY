@@ -1,7 +1,10 @@
 ## The rodrick luvr :3
  <table border="0" cellpadding="0" cellspacing="0">
   <tr> <!-- LEFT SIDE: MAIN CHARACTER ART -->
-    <!-- LEFT SIDE: MAIN CHARACTER ART -->
+    <!-- LEFT SIDE: MAIN CHARACTER ART --> 
+    <a href="https://rodricksheart.straw.page" target="_blank">
+  <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/chibi%20art%20fur%20github.png?raw=true" alt="mi strawpage" width="48%">
+  PLEASE SIGN MY YUME STRAWPAGE HERE !!!
     <td valign="top" width="45%">
       <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/da%20big%20rodrick.png?raw=true" width="100%" alt="Main Character"> <img src= "https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/yippie%20rodrick.png?raw=true" width="100%"><br>
     </td>  <!-- RIGHT SIDE: STATS, TEXT, AND DESIGNED GRAPHICS -->
@@ -29,9 +32,7 @@
   </td>
   </tr>
 </table> 
- <a href="https://rodricksheart.straw.page" target="_blank">
-  <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/chibi%20art%20fur%20github.png?raw=true" alt="mi strawpage" width="48%">
-  PLEASE SIGN MY YUME STRAWPAGE HERE !!!
+
 <!--
 <p align"center">
 <img src="https://demolab.com/." alt="Typing Animation" />
