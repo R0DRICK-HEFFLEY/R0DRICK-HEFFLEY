@@ -4,7 +4,7 @@
     <!-- LEFT SIDE: MAIN CHARACTER ART --> 
     <a href="https://rodricksheart.straw.page" target="_blank">
   <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/chibi%20art%20fur%20github.png?raw=true" alt="mi strawpage" width="48%">
-  PLEASE SIGN MY YUME STRAWPAGE HERE !!!
+  PLEASE SIGN MY YUME STRAWPAGE HERE !!! 
     <td valign="top" width="45%">
       <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/da%20big%20rodrick.png?raw=true" width="100%" alt="Main Character"> <img src= "https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/yippie%20rodrick.png?raw=true" width="100%"><br>
     </td>  <!-- RIGHT SIDE: STATS, TEXT, AND DESIGNED GRAPHICS -->
@@ -25,7 +25,8 @@
 </p>  <!-- Counter Badge and Custom Tag Graphics -->
       <p align="left">
       
-  <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/that%20is%20NOT%20rodrick%20but%20shh.png?raw=true" width="100%">    </td>  </tr> </table>
+  <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/that%20is%20NOT%20rodrick%20but%20shh.png?raw=true" width="100%">    [@pt-walk-of-fame](https://github.com/pt-walk-of-fame) [@Title-town](https://github.com/title-town) [@ponytownyumeshippers](https://github.com/ponytownyumeshippers) [@ponychievements](https://github.com/ponychievements)
+  </td>  </tr> </table>
  <!-- LEFT SIDE: MAIN CHARACTER ART -->
    <p align="center">
       <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/banner%20upsidedeown.png?raw=true" width="100%" alt="Main Character">
