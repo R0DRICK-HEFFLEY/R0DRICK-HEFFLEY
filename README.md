@@ -27,11 +27,11 @@ I love my f/o's Joaquin, Dean Taylor and Rodrick Heffley :3 (Mostly rodrick)
 </p>  <!-- Counter Badge and Custom Tag Graphics -->
       <p align="left">
       
-  <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/that%20is%20NOT%20rodrick%20but%20shh.png?raw=true" width="100%">    [@pt-walk-of-fame](https://github.com/pt-walk-of-fame) [@Title-town](https://github.com/title-town) [@ponytownyumeshippers](https://github.com/ponytownyumeshippers) [@ponychievements](https://github.com/ponychievements) 
+  <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/that%20is%20NOT%20rodrick%20but%20shh.png?raw=true" width="100%">    [@pt-walk-of-fame](https://github.com/pt-walk-of-fame) [@Title-town](https://github.com/title-town) [@ponytownyumeshippers](https://github.com/ponytownyumeshippers) [@ponychievements](https://github.com/ponychievements) [Follow My Pawsome luvoomf @ThatOrangeCatt](https://github.com/ThatOrangeCatt)
   </td>  </tr> </table>
  <!-- LEFT SIDE: MAIN CHARACTER ART -->
    <p align="center">
-      <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/banner%20upsidedeown.png?raw=true" width="100%">  
+      <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/banner%20upsidedeown.png?raw=true" width="100%">
   <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/thisfuckassgifbrah.gif?raw=true" alt="mi strawpage" width="45%"> goofy ass gif I made,,, <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/Screenshot%202026-08-03%20233931.png?raw=true" width="45%"> <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/Screenshot%202026-08-03%20052024.png?raw=true" width="45%">
   </td>
   </tr>
