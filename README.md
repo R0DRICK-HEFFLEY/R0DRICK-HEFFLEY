@@ -31,7 +31,8 @@ I love my f/o's Joaquin, Dean Taylor and Rodrick Heffley :3 (Mostly rodrick)
   </td>  </tr> </table>
  <!-- LEFT SIDE: MAIN CHARACTER ART -->
    <p align="center">
-      <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/banner%20upsidedeown.png?raw=true" width="100%">
+      <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/banner%20upsidedeown.png?raw=true" width="100%">  
+  <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/thisfuckassgifbrah.gif?raw=true" alt="mi strawpage" width="45%"> goofy ass gif I made,,, <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/Screenshot%202026-08-03%20233931.png?raw=true" width="45%"> <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/Screenshot%202026-08-03%20052024.png?raw=true" width="45%">
   </td>
   </tr>
 </table> 
