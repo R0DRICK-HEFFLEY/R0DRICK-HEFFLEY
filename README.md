@@ -27,7 +27,7 @@ I love my f/o's Joaquin, Dean Taylor and Rodrick Heffley :3 (Mostly rodrick)
 </p>  <!-- Counter Badge and Custom Tag Graphics -->
       <p align="left">
       
-  <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/that%20is%20NOT%20rodrick%20but%20shh.png?raw=true" width="100%">    [@pt-walk-of-fame](https://github.com/pt-walk-of-fame) [@Title-town](https://github.com/title-town) [@ponytownyumeshippers](https://github.com/ponytownyumeshippers) [@ponychievements](https://github.com/ponychievements) [Follow My Pawsome luvoomf @ThatOrangeCatt](https://github.com/ThatOrangeCatt)
+  <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/that%20is%20NOT%20rodrick%20but%20shh.png?raw=true" width="100%">    [@pt-walk-of-fame](https://github.com/pt-walk-of-fame) [@Title-town](https://github.com/title-town) [@ponytownyumeshippers](https://github.com/ponytownyumeshippers) [@ponychievements](https://github.com/ponychievements) [@pt-loveforfictional](https://github.com/pt-loveforfictional) [Follow My Pawsome luvoomf @ThatOrangeCatt](https://github.com/ThatOrangeCatt)
   </td>  </tr> </table>
  <!-- LEFT SIDE: MAIN CHARACTER ART -->
    <p align="center">
