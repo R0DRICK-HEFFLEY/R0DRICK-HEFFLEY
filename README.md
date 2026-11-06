@@ -4,9 +4,9 @@ I love my f/o's Joaquin, Dean Taylor and Rodrick Heffley :3 (Mostly rodrick)
  <table border="0" cellpadding="0" cellspacing="0">
   <tr> <!-- LEFT SIDE: MAIN CHARACTER ART -->
     <!-- LEFT SIDE: MAIN CHARACTER ART --> 
-    <a href="https://rodricksheart.straw.page" target="_blank">
+    <a href="https://melgraves22.straw.page" target="_blank">
   <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/chibi%20art%20fur%20github.png?raw=true" alt="mi strawpage" width="48%">
-  PLEASE SIGN MY YUME STRAWPAGE HERE !!! 
+  abt mi straw ! + yume straw linked !
     <td valign="top" width="45%">
       <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/da%20big%20rodrick.png?raw=true" width="100%" alt="Main Character"> <img src= "https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/yippie%20rodrick.png?raw=true" width="100%"><br>
     </td>  <!-- RIGHT SIDE: STATS, TEXT, AND DESIGNED GRAPHICS -->
