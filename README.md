@@ -1,6 +1,6 @@
 ## The rodrick luvr :3
 <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/pony-town-Sign%20straw-%20%F0%9F%92%A4%20Joaquin-%20F_O-%20%E2%99%A1-boop-sit-blinking-padded-4x.gif?raw=true" width="19%"> <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/pony-town-S-sp,%20%F0%9F%96%8Cor%F0%9F%92%A4%20dean%20taylor%20f_o-applause2-blinking-padded-4x.gif?raw=true" width="19%"> <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/pony-town-sign%20sp-Rodrick%20heffley%20F_o-dance-4-blinking-padded-4x.gif?raw=true" width="23%"> <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/pony-town-SYS%20IRL-%231%20rodrickheffley%20kssr-applause2-hearts-blush-blinking-padded-ponyplush-4x.gif?raw=true" width="19%"> 
-I love my f/o's Joaquin, Dean Taylor and Rodrick Heffley :3 (Mostly rodrick)
+I love my f/o's Joaquin, Dean Taylor and Rodrick Heffley :3 (Mostly rodrick) - oughh I plan on redesigning this rodrick github to a diff rodrick theme TwT
  <table border="0" cellpadding="0" cellspacing="0">
   <tr> <!-- LEFT SIDE: MAIN CHARACTER ART -->
     <!-- LEFT SIDE: MAIN CHARACTER ART --> 
