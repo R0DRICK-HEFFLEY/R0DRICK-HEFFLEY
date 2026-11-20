@@ -1,7 +1,7 @@
 ## The rodrick luvr :3 
 <img align="left" width="330" src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/da%20big%20rodrick.png?raw=true" alt="Image description"> 
 
-<img align="right" width="450" src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/raw/main/yippie%20rodrick.png?raw=true" alt="Image description">
+<img align="right" width="430" src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/raw/main/yippie%20rodrick.png?raw=true" alt="Image description">
 
  </div> <div align="center">
    ˚⊹𐂯  She  /  Him  !
