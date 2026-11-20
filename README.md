@@ -1,44 +1,69 @@
-## The rodrick luvr :3
-<img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/pony-town-Sign%20straw-%20%F0%9F%92%A4%20Joaquin-%20F_O-%20%E2%99%A1-boop-sit-blinking-padded-4x.gif?raw=true" width="19%"> <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/pony-town-S-sp,%20%F0%9F%96%8Cor%F0%9F%92%A4%20dean%20taylor%20f_o-applause2-blinking-padded-4x.gif?raw=true" width="19%"> <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/pony-town-sign%20sp-Rodrick%20heffley%20F_o-dance-4-blinking-padded-4x.gif?raw=true" width="23%"> <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/pony-town-SYS%20IRL-%231%20rodrickheffley%20kssr-applause2-hearts-blush-blinking-padded-ponyplush-4x.gif?raw=true" width="19%"> 
-I love my f/o's Joaquin, Dean Taylor and Rodrick Heffley :3 (Mostly rodrick) - oughh I plan on redesigning this rodrick github to a diff rodrick theme TwT
- <table border="0" cellpadding="0" cellspacing="0">
-  <tr> <!-- LEFT SIDE: MAIN CHARACTER ART -->
-    <!-- LEFT SIDE: MAIN CHARACTER ART --> 
-    <a href="https://melgraves22.straw.page" target="_blank">
-  <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/chibi%20art%20fur%20github.png?raw=true" alt="mi strawpage" width="48%">
-  abt mi straw ! + yume straw linked !
-    <td valign="top" width="45%">
-      <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/da%20big%20rodrick.png?raw=true" width="100%" alt="Main Character"> <img src= "https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/yippie%20rodrick.png?raw=true" width="100%"><br>
-    </td>  <!-- RIGHT SIDE: STATS, TEXT, AND DESIGNED GRAPHICS -->
-    <td valign="top" width="55%" style="padding-left: 20px;">  <!-- Custom Header Graphic (Top Ribbon Box) -->
-      <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/heart%20checked%20rodrick.webp?raw=true="100%"><br><br> <!-- Text Bio Area -->
-      <p align="left">
-        <code>(¬‿¬) Let me teach you the ways of a lazy life!</code>
-        
-   Rodrick selfshipper since 03/11/2015 !! I love him sm, dlbs i prefer dni,,,u can talk about him but not romantically and i dont like seeing art of him w someone else, sorry, if we r already super close i dont mind if ur yumeshipping with him !! I prefer it only be with close friends, i share ALL my yumes but for rodrick specifically i am very selective sharing, i am not toxic tho !! i wont harass u and u wont harass me, i wont block u either (unless its ur tiktok then i lowk might ngl) i js wont int, oke? Ok. If u ARE a dbl and u want to int we both will not mention him to keep everyone comfy.  
-      </p>   <br>  <!-- Side-by-Side Friend Images -->
-<p align="center"> 
-  <a href="https://jamessun.straw.page/" target="_blank">
-  <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/straw%20rodrick.png?raw=true" alt="mi strawpage" width="48%">
-</a> <a href="https://deadlywinters.atabook.org/" target="_blank">
-  <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/ata%20rodrick.png?raw=true" alt="mi ata" width="48%">
-</a>
-  Beisdes all that I love C+H !! Always welcome unless stated otherwise, I'll always cuddle right back ! Feel free to match skins with me or do ship interacts ! Though plspls W2I always, Im offtab almost all the time or sleeping,,,I dont wanna miss ur msg oke? I dont rlly use skins of who is actually fronting so nvr be scared to ask, lol. Also don't act like we are ACTUALLY that character cause we have a lot of introjects, oke?
-</p>  <!-- Counter Badge and Custom Tag Graphics -->
-      <p align="left">
-      
-  <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/that%20is%20NOT%20rodrick%20but%20shh.png?raw=true" width="100%">    [@pt-walk-of-fame](https://github.com/pt-walk-of-fame) [@Title-town](https://github.com/title-town) [@ponytownyumeshippers](https://github.com/ponytownyumeshippers) [@ponychievements](https://github.com/ponychievements) [@pt-loveforfictional](https://github.com/pt-loveforfictional) [@pt-heavyfictkin](https://github.com/pt-heavyfictkin) [@animal-town](https://github.com/animal-town) [@piddlesjet](https://github.com/piddlesjet) [Follow My Pawsome luvoomf @ThatOrangeCatt](https://github.com/ThatOrangeCatt)
-  </td>  </tr> </table>
- <!-- LEFT SIDE: MAIN CHARACTER ART -->
-   <p align="center">
-      <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/banner%20upsidedeown.png?raw=true" width="100%">
-  <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/thisfuckassgifbrah.gif?raw=true" alt="mi strawpage" width="45%"> goofy ass video I made,,,tysm oomf for making it a gif LMAOO <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/thank%20you%20yuumi.png?raw=true" alt="mi strawpage" width="45%"> look at these chudsss, thank u luvoomf <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/I%20be%20makin%20bullshit.png?raw=true" width="35%"> yes i draw bs how'd you know <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/Screenshot%202026-08-03%20233931.png?raw=true" width="45%"> <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/Screenshot%202026-08-03%20052024.png?raw=true" width="45%"> <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/pony-town-Sign%20straw-%20%F0%9F%92%A4%20Joaquin-%20F_O-%20%E2%99%A1-lie-blush-zzz-blinking-padded-4x.gif?raw=true" width="21%"> <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/pony-town-S-sp,%20%F0%9F%96%8Cor%F0%9F%92%A4%20dean%20taylor%20f_o-dance-lie-2-blush-zzz-blinking-padded-4x.gif?raw=true" width="19%"> <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/pony-town-%F0%9F%92%A4sign%20staw,%20rodrick%20f_o%20dniuf-dance-lie-hearts-blush-zzz-blinking-padded-4x.gif?raw=true" width="23%"> <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/pony-town-SYS%20IRL-%231%20rodrickheffley%20kssr-dance-lie-2-hearts-blush-zzz-blinking-padded-ponyplush-4x.gif?raw=true" width="21%"> 
-  </td>
-  </tr>
-</table> 
+## The rodrick luvr :3 
+<img align="left" width="350" src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/da%20big%20rodrick.png?raw=true" alt="Image description"> 
 
-<!--
-<p align"center">
-<img src="https://demolab.com/." alt="Typing Animation" />
-</p>
--->
+<img align="right" width="450" src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/raw/main/yippie%20rodrick.png?raw=true" alt="Image description">
+
+ </div> <div align="center">
+   ˚⊹𐂯  She  /  Him  !
+         
+          
+   ꨄ︎  17 - poc / black ˃ᴗ˂
+         
+         
+   Rodricks fiancé 𓆩❤︎𓆪
+         
+         
+   Osdd-1b - autism  ୭⋆
+    
+    
+   Rodrick kssr since 03/11/2015 <3 
+</div>
+<div align="center"> <details>
+    <summary>F1 Kins + Byi</summary>
+    IRL- mv3 , op81 , rc50 , ka12 , yt22 , ln4. 
+  BOO I participate in rpf , but i believe it should be kept to the community and not the real ppl !
+ <img src="https://github.com/user-attachments/assets/0687fac5-64a4-47a9-8c5c-0738b883298c"alt="Button Description" width="130%"> 
+ yes I furgot yuki STOP STOP I'LL CRY DONT MENTION IT IK IK I LOVE HIM SM I WAS JS INA RUSH
+</details>
+</div> <div align="center"> 
+ 
+ [Straw](https://melgraves22.straw.page)
+ <img src="https://github.com/MeowingButtons/MeowingButtons/blob/main/meeeeee.png?raw=true" alt="Button Description" width="13%"> </div> <div align="center"> <details>
+    <summary>f/o + nf/o's !</summary>
+     Sharing: kr7 , op81 , ob87 , ln4 , + prob others. 
+
+ 
+ 
+ not non sharing but not sharing either ? idm doubles alot: mv3
+
+
+ Non-sharing: Dean Taylor (The entitled)
+
+
+ Void sharing: Rodrick Heffley , but idm if ur yumi , gc or mi bf
+</details> </div> <div align="center"> 
+ 
+ [ata](https://deadlywinters.atabook.org/)
+
+ <img src="https://paleking.carrd.co/assets/images/gallery09/e7817fc8.png?v26071698921061" alt="Button Description" width="12%">
+</div> <div align="center"> <details>
+    <summary>Awards</summary> 
+  <td valign="top" width="45%">
+      <img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/that%20is%20NOT%20rodrick%20but%20shh.png?raw=true" width="40%"> 
+
+   
+Pt's Rodrick heffley , Oscar Piastri , Max Verstappen , Arctic wolf
+
+Pt's Rodrick Heffley and Dean Taylor Yume
+   
+ [@pt-walk-of-fame](https://github.com/pt-walk-of-fame) [@Title-town](https://github.com/title-town) [@ponytownyumeshippers](https://github.com/ponytownyumeshippers) [@ponychievements](https://github.com/ponychievements) [@pt-loveforfictional](https://github.com/pt-loveforfictional) [@pt-heavyfictkin](https://github.com/pt-heavyfictkin) [@animal-town](https://github.com/animal-town) [@piddlesjet](https://github.com/piddlesjet) 
+</details> <div align="center">
+
+
+ 
+ Mel Graves 22 - Mercedes racer
+ 
+  x
+
+Kal Ladden 3 - Ferrari racer
+</div>
