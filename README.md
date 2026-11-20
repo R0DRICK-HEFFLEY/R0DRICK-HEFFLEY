@@ -66,5 +66,6 @@ Pt's Rodrick Heffley and Dean Taylor Yume
   x
 
 Kal Ladden 3 - Ferrari racer
-</div> 
-<img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/pony-town-Mv3's%20wife%20,%20s-sp%20,%20mg22%20irl-dance-3-blinking-padded-4x.gif?raw=true" width="80%"> 
+</div>  
+<img src="pony-town-KL3 , mi bf ^w^ , s-sp-dance-3-blinking-padded-4x.gif" width="20%"> 
+<img src="https://github.com/R0DRICK-HEFFLEY/R0DRICK-HEFFLEY/blob/main/pony-town-Mv3's%20wife%20,%20s-sp%20,%20mg22%20irl-dance-3-blinking-padded-4x.gif?raw=true" width="20%"> 
